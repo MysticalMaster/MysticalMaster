@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MysticalMaster
 - 👀 I’m interested in art
-- 🌱 I’m currently learning narrative art
+- 🌱 I’m currently learning illustration
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: They/Them
